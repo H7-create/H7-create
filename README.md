@@ -11,6 +11,8 @@
 
 - 📫 How to reach me **1376229187@qq.com**
 
+- - 👯 character **I'm a positive**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
